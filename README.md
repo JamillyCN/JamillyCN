@@ -10,7 +10,7 @@ Não aguento mais fazer tudo isso contra a minha vontade e em curto período de 
 
 Por fim, vou enviar alguns dos meus _projetos escolares_ por aqui.
 
-### Se você achou isso e você quer me importunar, você pode entrar em contato comigo por aqui:
+### Se você achou isso e quer me importunar, você pode entrar em contato comigo por aqui:
 📫 00001095270862SP@al.educacao.sp.gov.br
 
 ![_](https://media.tenor.com/N_rwp87C5rcAAAAi/applause-stan-marsh.gif)
